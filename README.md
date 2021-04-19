@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ManojChamikara
+- 👀 I’m interested in Developments and Security
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate
